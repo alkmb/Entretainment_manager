@@ -1,1 +1,0 @@
-# Entretainment_manager
